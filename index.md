@@ -93,7 +93,7 @@ If you sign up for updates from Modiqo outside of Etsy (for example, through a s
 - Every email includes an **unsubscribe link** — one click and you're off the list, no questions asked
 
 **Your right to unsubscribe:**
-- You can unsubscribe at any time via the link in any email, or by contacting me directly at forsalon.shop@gmail.com
+- You can unsubscribe at any time via the link in any email, or by contacting me directly at art4sales.manager@gmail.com
 - After unsubscribing, I will remove your email from the list within **5 business days**
 
 Unsubscribing from marketing emails does not affect order confirmations or support messages — those are sent only when needed to fulfil your order.
